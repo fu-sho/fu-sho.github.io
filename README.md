@@ -1,0 +1,1 @@
+# fu-sho.github.io
